@@ -1,1 +1,2 @@
 # NDPb181200007
+En büyük problemin hem Dünya hem de Türkiye için covid-19 olduðunu düþündüðüm için internette belirtilerini araþtýrýp herkese yardým amaçlý elimden geldiðince uðraþarak taný programý yaptým inþallah yararlý olur ve beðenirsiniz.
